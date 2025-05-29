@@ -1,12 +1,9 @@
-- 👋 Hi, I’m @lzkffx
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
 
-<!---
-lzkffx/lzkffx is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+ 
+
+LZKFFX
+Vendedor Digital
+💰VENHA GANHAR DINHEIRO SEM
+PRECISAR SAIR DE CASA💰
+🔥CURSOS🔥 🔥APPS🔥 🔥GRUPO DO WHATSAPP🔥 💥REDES SOCIAIS💥
+@
